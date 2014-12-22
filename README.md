@@ -35,908 +35,102 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A learned and fruitefull commentarie vpon the Epistle of Iames the Apostle vvherein are diligently a
+
+1. To the godly and reuerend Father, and faythfull Miniſter of Chriſt, M. Alexander Novvell, Deane of the Cathedrall Church of S. Paule in London, W. Gace wiſheth grace and peace from God the father through Christ Ieſus our Lorde.
+
+1. ¶Faultes eſcaped in the printing of this treatiſe gentle reader correct as followeth.
+
 #####Body#####
 
-1. CHAP. 1. ¶The ſumme of the fyrſt Chapter.
+1. The Argument of the Epiſtle of Iames the Apostle.
+CHAP. 1. ¶The ſumme of the fyrſt Chapter.HE exhorteth Christians that they faynte not vnder the heau
+    _ CHAP. 1. ¶The ſumme of the fyrſt Chapter.
 
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
+    _ The order and partes of the firſt Chapter.
+
+    _ The expoſition of the fyrſt chapter with an obſeruation of the Doctrine.
+
+      * Of tentation, and the remedie agaynst it.
+15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringethChap. 2. The ſumme of the ſecond Chapter.AS he doth dehort thoſe that are conuerted from deſpiſing a
+    _ Chap. 2. The ſumme of the ſecond Chapter.
+
+    _ The order and partes of the ſecond Chapter.
+
+    _ The expoſition of the ſecond Chapter with an obſeruation of the Doctrine.
+
+      * Of Election.
 6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
+      * A declaration of the doctrine of repentance.
+Chap. 3. The ſumme of the thirde Chapter.AS he perſwadeth that none doe rashly vſurpe vnto him ſelfe
+    _ Chap. 3. The ſumme of the thirde Chapter.
 
-    _ Of riches and contracts or bargaines.
+    _ The order and partes of the thirde Chapter.
 
-    _ Of contractes or bargaines.
+    _ The expoſition of the third Chapter with an obſeruation of the Doctrine.
+Chap 4. The ſumme of the fourth Chapter.AS the Apostle exhorteth them, that vnlawfull lustes from wh
+    _ Chap 4. The ſumme of the fourth Chapter.
 
-    _ Of the Exchange of thinges.
+    _ The order and partes of the fourth Chapter.
 
-    _ Of bying and ſelling.
+    _ The expoſition of the fourth Chapter with an obſeruation of the Doctrine.
+Chap. 5. The ſumme of the fift Chapter.AS he forbiddeth a rashe othe, and giueth counſayle to the af
+    _ Chap. 5. The ſumme of the fift Chapter.
 
-    _ Of Borowing.
+    _ The order and partes of the fift Chapter.
 
-    _ Of Vſurie.
+    _ The expoſition of the fift Chapter, with an obſeruation of the doctrine.
 
-    _ Of the first.
+      * Of riches and contracts or bargaines.
 
-    _ Of the ſecond.
+      * Of contractes or bargaines.
 
-    _ Of the third.
+      * Of the Exchange of thinges.
 
-    _ Of Almes.
+      * Of bying and ſelling.
 
-    _ Of the fourth.
+      * Of Borowing.
 
-    _ Of the fift.
+      * Of Vſurie.
 
-    _ Of Lending.
+      * Of the first.
 
-    _ Of hyring and letting out.
+      * Of the ſecond.
 
-    _ Of the contract of ſocietie.
+      * Of the third.
 
-    _ A Question concerning the goods of the Church.
+      * Of Almes.
 
-    _ The Aunſwere.
+      * Of the fourth.
 
-    _ An obiection.
+      * Of the fift.
 
-    _ The Aunſwere.
+      * Of Lending.
 
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
+      * Of hyring and letting out.
 
-    _ A Question of the right vſe of the goods of the Church
+      * Of the contract of ſocietie.
+
+      * A Question concerning the goods of the Church.
+
+      * The Aunſwere.
+
+      * An obiection.
+
+      * The Aunſwere.
+
+      * The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
+
+      * A Question of the right vſe of the goods of the Church
 7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
+      * Of an Othe.
 
-    _ Of the first.
+      * Of the first.
 
-    _ Of the ſeconde.
+      * Of the ſeconde.
 
-    _ Of the third.
+      * Of the third.
 
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The order and partes of the firſt Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The expoſition of the fyrſt chapter with an obſeruation of the Doctrine.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. Chap. 2. The ſumme of the ſecond Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The order and partes of the ſecond Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The expoſition of the ſecond Chapter with an obſeruation of the Doctrine.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. Chap. 3. The ſumme of the thirde Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The order and partes of the thirde Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The expoſition of the third Chapter with an obſeruation of the Doctrine.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. Chap 4. The ſumme of the fourth Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The order and partes of the fourth Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The expoſition of the fourth Chapter with an obſeruation of the Doctrine.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. Chap. 5. The ſumme of the fift Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The order and partes of the fift Chapter.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
-13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
-1. The expoſition of the fift Chapter, with an obſeruation of the doctrine.
-
-    _ Of tentation, and the remedie agaynst it.
-15. Then vvhen luſt hath conceiued, it bringeth forth ſinne, and ſinne vvhen it is finished bringeth
-    _ Of Election.
-6 But ye haue deſpiſed the poore.By this ſetting of one contrarie againſt the other,The poore in no 
-    _ A declaration of the doctrine of repentance.
-
-    _ Of riches and contracts or bargaines.
-
-    _ Of contractes or bargaines.
-
-    _ Of the Exchange of thinges.
-
-    _ Of bying and ſelling.
-
-    _ Of Borowing.
-
-    _ Of Vſurie.
-
-    _ Of the first.
-
-    _ Of the ſecond.
-
-    _ Of the third.
-
-    _ Of Almes.
-
-    _ Of the fourth.
-
-    _ Of the fift.
-
-    _ Of Lending.
-
-    _ Of hyring and letting out.
-
-    _ Of the contract of ſocietie.
-
-    _ A Question concerning the goods of the Church.
-
-    _ The Aunſwere.
-
-    _ An obiection.
-
-    _ The Aunſwere.
-
-    _ The grieuouſnes of the ſinne of them which couetouſly and greedily get into their handes the goods of the Church.
-
-    _ A Question of the right vſe of the goods of the Church
-7 Be pacient therefore, brethren, vnto the comming of the Lorde.Vpon the rebuking of rich men he bri
-    _ Of an Othe.
-
-    _ Of the first.
-
-    _ Of the ſeconde.
-
-    _ Of the third.
-
-    _ Of the fourth.
+      * Of the fourth.
 13 Is any among you afflicted, let him pray.Briefe admonitions are annexed, and firſt that he which 
 **Types of content**
 
